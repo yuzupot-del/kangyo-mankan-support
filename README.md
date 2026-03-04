@@ -1,0 +1,1 @@
+# kangyo-mankan-support
